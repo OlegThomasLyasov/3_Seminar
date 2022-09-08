@@ -10,3 +10,4 @@
 * отличное 
 * боевое :angry:
 
+![настроение упал](https://i.pinimg.com/564x/b7/88/df/b788df7017789eb1160c1c33ce2cbd66.jpg)
