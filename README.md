@@ -10,3 +10,7 @@
 * отличное 
 * боевое :angry:
 
+# Изменения внесены!
+
+![bee](https://soklan.ru/list/download.php?id=5066&)
+
