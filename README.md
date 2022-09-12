@@ -9,6 +9,7 @@
 * спортивное
 * отличное 
 * боевое :angry:
+* спасибо за уроки! :sweat_smile: :smiley: :smiley: !!!
 
 ## Video "Dog"
 ---
