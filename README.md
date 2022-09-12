@@ -10,3 +10,8 @@
 * отличное 
 * боевое :angry:
 
+## Video "Dog"
+---
+---
+[![Собаки](https://attuale.ru/wp-content/uploads/2018/08/maxresdefault-60.jpg)](https://youtu.be/vwSw184vKd0)
+---
