@@ -28,6 +28,4 @@ $$$$$$$$$ ghfhf
 * sport :muscle:
  ### Add picture
 
-
-![picture](https://hauntedattractiononline.com/wp-content/uploads/2016/09/picher_oklahoma.jpg)
-
+* Delet picture fatal error
