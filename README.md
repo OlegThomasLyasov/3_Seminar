@@ -10,3 +10,6 @@
 * отличное 
 * боевое :angry:
 
+Я научилась создавать pull request!
+![END](https://mirpozitiva.ru/wp-content/uploads/2019/11/1542866777_0013.jpg)
+
