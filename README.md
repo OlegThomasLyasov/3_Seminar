@@ -4,9 +4,9 @@
 * веселое :smiley:
 * грустное :unamused:
 * дружелюбный :sweat_smile:
-* рабочее
-* осеннее
-* спортивное
-* отличное 
+* рабочее :construction_worker:
+* осеннее :umbrella:
+* спортивное :running:
+* отличное :sunglasses:
 * боевое :angry:
 
